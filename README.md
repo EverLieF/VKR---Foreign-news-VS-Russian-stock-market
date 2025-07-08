@@ -1,0 +1,1 @@
+# VKR---Foreign-news-VS-Russian-stock-market
